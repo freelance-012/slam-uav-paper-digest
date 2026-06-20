@@ -31,7 +31,7 @@
 
 ## 同步更新
 
-- 📡 知乎：[@心本逍遥](https://www.zhihu.com/people/心本逍遥)
+- 📡 知乎：[@心本逍遥](https://www.zhihu.com/people/freelance-012)
 - 📝 公众号：[@街灯手记]
 
 ---
